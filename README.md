@@ -1,1 +1,0 @@
-# vasquezvisualsresumegithub.io
